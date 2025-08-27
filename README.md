@@ -2,7 +2,7 @@
 
 Published in Curieux Academic Journal, January 2025 (pg 528-535) — www.curieuxacademicjournal.com/_files/ugd/99711c_bab2ec6c2f1e4a818f05872fc24e1c14.pdf#page=528 
 
-Preprint available on research-archive.org/index.php/rars/authorDashboard/submission/1785 
+Preprint available on www.research-archive.org/index.php/rars/authorDashboard/submission/1785   
 
 ## Abstract
 
